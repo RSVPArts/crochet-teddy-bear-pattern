@@ -209,6 +209,8 @@ Free patterns are a great way to practice, but premium PDF patterns often includ
 
 ## Final Thoughts
 
+![crochet teddy bear](images/close-up.png)
+
 Crocheting a teddy bear is more than just another crochet project—it's an opportunity to create something meaningful that can be treasured for years. Whether you're making a thoughtful handmade gift, decorating a nursery, or expanding your amigurumi collection, choosing a clear and well-written pattern makes the entire process more enjoyable.
 
 Take your time, practice consistently, and don't worry if your first teddy bear isn't perfect. Every project improves your crochet skills and helps you gain confidence for more advanced designs.
