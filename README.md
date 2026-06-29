@@ -1,5 +1,9 @@
 # Crochet Teddy Bear Pattern
 
+![](da239118-1b55-43ec-853e-fd792023dda1.png)
+
+# Crochet Teddy Bear Pattern
+
 ## Introduction
 
 ## Why Crochet Teddy Bears Are So Popular
