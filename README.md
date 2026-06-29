@@ -212,7 +212,7 @@ Crocheting a teddy bear is more than just another crochet project—it's an oppo
 
 Take your time, practice consistently, and don't worry if your first teddy bear isn't perfect. Every project improves your crochet skills and helps you gain confidence for more advanced designs.
 
-If you're looking for a printable PDF with detailed instructions, helpful photos, and an easy-to-follow layout, you can explore this **[Crochet Teddy Bear Pattern](PASTE_YOUR_ETSY_LISTING_URL_HERE)**.
+If you're looking for a printable PDF with detailed instructions, helpful photos, and an easy-to-follow layout, you can explore this **[Crochet Teddy Bear Pattern](https://www.etsy.com/listing/4515663230/crochet-teddy-bear-pattern-pdf-chenille)**.
 
 Happy crocheting, and enjoy creating your own handmade teddy bear!
 
