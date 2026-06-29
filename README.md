@@ -1,7 +1,7 @@
 # Crochet Teddy Bear Pattern
 
 ![](images/hero-image.png)
-
+![Crochet Teddy Bear Pattern for Beginners](images/hero-image.png)
 ## Table of Contents
 
 ## Introduction
