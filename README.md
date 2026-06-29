@@ -2,8 +2,6 @@
 
 ![Crochet Teddy Bear Pattern for Beginners](images/hero-image.png)
 
-## Table of Contents
-
 ## Introduction
 A crochet teddy bear pattern is one of the most rewarding projects for beginners and experienced crocheters alike. Whether you're creating a heartfelt handmade gift, decorating a nursery, or expanding your amigurumi collection, a teddy bear is a timeless project that never goes out of style.
 
@@ -11,7 +9,8 @@ Unlike many advanced crochet projects, a well-designed teddy bear pattern allows
 
 This guide covers everything you need to know before starting your next crochet teddy bear project. You'll learn about materials, choosing the right pattern, beginner tips, and common mistakes so you can complete your project with confidence.
 
-If you're searching for an easy teddy bear crochet pattern, a classic crochet pattern for teddy bear, or an amigurumi crochet teddy bear pattern, this guide will help you make the right choice.
+If you're searching for an easy teddy bear crochet pattern or an amigurumi crochet teddy bear pattern along with a printable PDF that includes detailed step-by-step instructions, clear photos, and a beginner-friendly layout, you can explore this **[Classic Crochet Pattern For Teddy Bear](https://www.etsy.com/listing/4515663230/crochet-teddy-bear-pattern-pdf-chenille)** before you begin your project.
+
 
 ## Why Crochet Teddy Bears Are So Popular
 
