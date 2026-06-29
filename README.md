@@ -91,7 +91,7 @@ Choosing a well-written pattern can save hours of frustration and help you enjoy
 
 📸 Image Suggestion: (Insert materials/tools image here)
 
-![Finished Crochet Teddy Bear](images/finished-teddy.png)
+![Finished Crochet Teddy Bear](images/teddy-finished.png)
 
 ## Step-by-Step Crochet Process
 
