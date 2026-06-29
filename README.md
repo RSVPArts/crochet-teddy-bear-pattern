@@ -1,6 +1,6 @@
 # Crochet Teddy Bear Pattern
 
-![](da239118-1b55-43ec-853e-fd792023dda1.png)
+![](images/da239118-1b55-43ec-853e-fd792023dda1.png)
 
 # Crochet Teddy Bear Pattern
 
