@@ -224,3 +224,7 @@ Happy crocheting, and enjoy creating your own handmade teddy bear!
 ## Copyright
 
 This article is provided for educational purposes. Please respect the copyright of all crochet pattern designers and avoid sharing or redistributing paid patterns without permission.
+
+## Author: RSVP Arts
+
+This educational guide was created to help crochet enthusiasts learn more about teddy bear patterns and amigurumi techniques.
