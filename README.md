@@ -84,8 +84,6 @@ Intermediate crocheters may enjoy patterns with clothing, accessories, jointed l
 
 Classic teddy bear crochet patterns often focus on traditional proportions, while modern amigurumi teddy bear crochet designs feature oversized heads, expressive faces, and cute miniature details.
 
-If you prefer a printable PDF with detailed instructions and clear photos, you can explore a complete [Crochet Teddy Bear Pattern](https://www.etsy.com/listing/4515663230/crochet-teddy-bear-pattern-pdf-chenille) here:
-
 Choosing a well-written pattern can save hours of frustration and help you enjoy the creative process from start to finish.
 
 ![Finished handmade crochet teddy bear](images/teddy-finished.png)
