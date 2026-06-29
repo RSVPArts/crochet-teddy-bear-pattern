@@ -2,7 +2,7 @@
 
 ![](images/hero-image.png)
 
-# Crochet Teddy Bear Pattern
+## Table of Contents
 
 ## Introduction
 
@@ -10,14 +10,16 @@
 
 ## Materials You'll Need
 
-## How to Choose the Right Crochet Teddy Bear Pattern
+## Choosing the Right Crochet Teddy Bear Pattern
 
-## Step-by-Step Overview
+## Step-by-Step Crochet Process
 
 ## Beginner Tips
 
-## Common Mistakes
+## Common Mistakes to Avoid
+
+## Free vs Premium Crochet Patterns
 
 ## Frequently Asked Questions
 
-## Conclusion
+## Final Thoughts
